@@ -1,0 +1,6 @@
+- 👋 Olá meu nome é Luana Sodário Queiroz,
+- 👀 Atualmente estou fazendo cursos online, para adquirir conhecimentos na area da tecnologia,
+- 🌱 No começo ainda esta sendo muito dificil pra mim, mas...
+- 💞️ Estou afim de colaborar nessa corrida na procura de programadores que esta em falta,
+- :nerd_face: Quero muito fazer parte dessa jornada, a tecnologia pra mim é facinante, então precisa sim ser estudada.
+- Boa sorte a todos!!! :sparkling_heart:
